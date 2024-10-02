@@ -8,5 +8,6 @@ ultilizo esse espaço paran minha organizaçao e compartilhamento dos meus proje
 
 ### voce entra em contato comigo
 
-raytomarcelo@gmail.com
-@
+raygustavo@gmail.com
+
+@raygustavo
